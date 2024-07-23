@@ -36,7 +36,7 @@ Aaron, the first high priest, was called directly by God to the office; the apos
 
 This custom was continued in after years, as we learn from Exod. xxix. 29, 30,—" And the holy garments of Aaron shall be his sons' after him, to be anointed therein, and to be consecrated in them. And that son that is priest in his stead shall put them on seven days, when he cometh into the tabernacle of the congregation to minister in the holy place." The newly-made high priest was to wear the vestments of his predecessor to show the continuity of the office, and to mark its complete identity with that of his predecessor. We have in all this a great foreshadowing of the apostolic succession in the Christian Church.
 
->Christ is gone up : yet ere He pass'd
+>Christ is gone up: yet ere He pass'd
 >
 >From earth, in heav'n to reign,
 >
@@ -69,6 +69,6 @@ This custom was continued in after years, as we learn from Exod. xxix. 29, 30,�
 
 [^1]: St. M xxviii. 19, 20.
 [^2]: Ibid. 16.
-[^3]: See Acts vi. 6. 1 Tim. iv. 14 ; v. 22. 2 Tim. i. 6.
+[^3]: See Acts vi. 6. 1 Tim. iv. 14; v. 22. 2 Tim. i. 6.
 [^4]: "The Church has a principle of perpetuity imparted to it by God through his promise, who is her head and lord. Her succession of bishops mounts up by a golden chain, link by link, to the apostles, with whom and with their successors Christ promised to be always, even to the end of the world."—Pusey's sermon, *The Church the Converter of the Heathen*, p. 13.
 [^5]: Gore, *The Ministry of the Christian Church*, 2nd Ed., p. 109. [^6]: Num. xx. 24, etc.

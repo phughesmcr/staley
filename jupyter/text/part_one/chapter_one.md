@@ -45,7 +45,7 @@ In short, the old Church was absorbed in the new; and the Jewish religion, fille
 
 >"The religion of which Jesus is the author, and which the Spirit of Jesus founded on the day of Pentecost, was no mere novelty; not a system which arose aside from, and did not fall in with, the main line of the dispensations of God.
 >
->The religion of Jesus is the flower, of which the Jewish Church is the bud, and the Patriarchal the stem ; it is a true development and outgrowth of earlier principles. Christianity appears as the descendant of a most ancient religion, not merely as its successor, but as the interpreter of its rites, and the key to its prophecies."
+>The religion of Jesus is the flower, of which the Jewish Church is the bud, and the Patriarchal the stem; it is a true development and outgrowth of earlier principles. Christianity appears as the descendant of a most ancient religion, not merely as its successor, but as the interpreter of its rites, and the key to its prophecies."
 >
 > \- Hutchings, *The Person and Work of the Holy Ghost*, 4th Ed., p. 108.
 
@@ -53,13 +53,9 @@ In short, the old Church was absorbed in the new; and the Jewish religion, fille
 
 ## Figure: Christ in the Church
 
-[image]
+![A black and white engraving or woodcut style illustration, depicting Christ in glory amongst seven candlesticks, surrounded by cloud](../../images/christ_in_the_church.jpg "Christ in the Church")
 
-"I saw seven golden candlesticks; and in the midst
-one like unto the Son of Man, and He had in his right
-hand seven stars... The seven stars are the angels
-of the seven churches, and the seven candlesticks are
-the seven churches."—*Rev. i. 12 to end.*
+"I saw seven golden candlesticks; and in the midst one like unto the Son of Man, and He had in his right hand seven stars... The seven stars are the angels of the seven churches, and the seven candlesticks are the seven churches."—*Rev. i. 12 to end.*
 
 *(Illustration taken, by permission, from Grueber's "Pure Offering.")*
 
