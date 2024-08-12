@@ -35,3 +35,4 @@ html:
 sphinx:
   config:
     html_theme: furo
+    language: en-gb
