@@ -1,6 +1,6 @@
 # Preface to the Sixth Edition
 
-THE author hopes that this work has now reached its final form. He begs to thank his numerous correspondents in all parts of the world for many valuable suggestions. He has also had the advantage of much criticism, both friendly and adverse, in the press.
+The author hopes that this work has now reached its final form. He begs to thank his numerous correspondents in all parts of the world for many valuable suggestions. He has also had the advantage of much criticism, both friendly and adverse, in the press.
 
 In this Edition considerable additions will be found, especially new articles on—
 

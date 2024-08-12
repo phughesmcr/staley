@@ -1,6 +1,6 @@
 # I. The Foundation of the Ministry
 
-AS we have already seen, when Jesus Christ came, the Jewish Church, with its divinely-appointed ministry, existed in its full strength. God had taken one tribe out of the twelve to be the priestly tribe, and one family of that tribe to bear the highest office of the priesthood. His choice fell upon the tribe of Levi, and, in it, on the family of Aaron.[^1] Members of this tribe and family alone formed the divinely-appointed ministers of the Jewish Church.
+As we have already seen, when Jesus Christ came, the Jewish Church, with its divinely-appointed ministry, existed in its full strength. God had taken one tribe out of the twelve to be the priestly tribe, and one family of that tribe to bear the highest office of the priesthood. His choice fell upon the tribe of Levi, and, in it, on the family of Aaron.[^1] Members of this tribe and family alone formed the divinely-appointed ministers of the Jewish Church.
 
 But this order, which typified the priesthood of our Lord, was not intended to continue when He came. It was the will of God that the Aaronic priesthood should pass away, and that a better and more enduring priesthood should take its place. The priesthood which was to supplant it was that which had been prefigured in the days of Abraham by the mysterious Melchisedec, of whom we read in the fourteenth chapter of Genesis.
 

@@ -1,6 +1,6 @@
 # Grades amongst the Bishops of the Church
 
-THE Christian ministry, consisting of the three orders of bishops, priests, and deacons, has already been shewn to be of divine institution. It cannot therefore be changed to any other form of ministry, and it will continue to be *the ministry* of the Church until the end of the world.
+The Christian ministry, consisting of the three orders of bishops, priests, and deacons, has already been shewn to be of divine institution. It cannot therefore be changed to any other form of ministry, and it will continue to be *the ministry* of the Church until the end of the world.
 
 But as the Church grew and spread in the world, it was found convenient to make distinctions of rank in each of the three orders of the ministry. This was specially the case with the bishops, the chief ministers of the Church.
 
