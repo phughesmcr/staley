@@ -1,6 +1,6 @@
 # The Foundation of the Church
 
-THERE is in our midst a vast society named the Christian Church, the Church of God. If we are not already members of this society, we are at least conscious of its presence. What is the origin of the Christian Church; from whence did it come; who was its founder?
+There is in our midst a vast society named the Christian Church, the Church of God. If we are not already members of this society, we are at least conscious of its presence. What is the origin of the Christian Church; from whence did it come; who was its founder?
 
 To this question there is but one answer, "The Lord hath founded Zion."[^1] It was through the coming of our Lord Jesus Christ and the gift of his Spirit, that the ancient Church of God passed into its catholic or world-wide phase on the day of Pentecost. Jesus Christ, the Son of God made man, is the founder of the Christian Church.
 
@@ -24,7 +24,7 @@ It is very noticeable that, if we except the popes and persons closely associate
 
 St. Peter may be regarded as the rock, because he first confessed belief in the person and office of Christ, and first was nominated to be an apostle. He was first in order amongst the twelve, but had no jurisdiction over the rest of the apostles. He was not their lord, but their leader: he was 'primus inter pares,' i.e., first amongst equals. The fathers lay great stress on the equality of the apostles.
 
-If St. Peter is a rock upon which the Church is built, we must remember that the other apostles are also spoken of as foundations of the Church (see Eph. ii. 20 ;  Rev. xxi. 14). The power of the keys, promised first to St. Peter, was afterwards promised by our Lord to all the apostles in similar words (compare St. Matt. xvi. 19 with xviii. 18); and it was simultaneously communicated to all (St. Thomas excepted) by our Lord's mysterious breathing, and by his words of power, on the evening of the day of his resurrection (see St. John xx. 21-24).
+If St. Peter is a rock upon which the Church is built, we must remember that the other apostles are also spoken of as foundations of the Church (see Eph. ii. 20;  Rev. xxi. 14). The power of the keys, promised first to St. Peter, was afterwards promised by our Lord to all the apostles in similar words (compare St. Matt. xvi. 19 with xviii. 18); and it was simultaneously communicated to all (St. Thomas excepted) by our Lord's mysterious breathing, and by his words of power, on the evening of the day of his resurrection (see St. John xx. 21-24).
 
 *The Author is indebted to the Rev. F. W. Puller for the substance of the foregoing Note.*
 
