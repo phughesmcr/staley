@@ -1,6 +1,6 @@
 *                 text=auto eol=lf
 jupyter/_build/*  linguist-generated=true
-*.pdf             binary
+*.pdf filter=lfs diff=lfs merge=lfs -text
 *.png             binary
 *.css             text
 *.htm             text diff=html
